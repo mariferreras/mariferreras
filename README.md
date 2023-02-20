@@ -1,4 +1,4 @@
-### Hi! 👋
+### Hi! ✨
 
 💭 I’m currently working on boosting my programming skills!
 
@@ -8,4 +8,4 @@
 
 ✉️ How to reach me: marinaferreras@icloud.com / https://www.linkedin.com/in/marina-ferreras/
 
-🪄 Fun fact about me: I'm _passionate_ about Dungeons & Dragons (and all things fantastical)!
+🪄 Fun fact about me: I'm _passionate_ about Dungeons & Dragons (and all things magical)!
